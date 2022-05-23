@@ -1,0 +1,4 @@
+- 👋 ola,meu nome  @maiara2510
+- 👀 estou interessada em aprender
+- 🌱 atualmente estou aprendendo 
+- 
